@@ -1,7 +1,13 @@
-:checkered_flag:Olá, me chamo Lucas Gabrie, tenho  apenas 16 anos!!!
+:checkered_flag:Olá, me chamo Lucas Gabriel, tenho  apenas 16 anos❗❗❗ 
 
-Pretendo terminar meus estudos e fazer uma faculdade  de engearia mecânica.
+Pretendo terminar meus estudos e fazer uma faculdade  de engearia mecânica 🛠️
 
-Gosto muito de viajar para lugares exotico, viajar com minha familia:bangbang:
+Gosto muito de viajar para lugares exotico 💼✈️,viajar com minha familia 👨‍👩‍👦
 
-Gosto muito de caminhão, e pretendo me envolver com isso mais pra frente
+Tambem gosto muito de caminhão, e pretendo me envolver com isso mais pra frente 
+
+Caso alguem queira entrar em contato vou deixar meu email aqui❗❗❗
+
+lucas.bandeira.cruz@gmail.pr.gov.br 👍
+
+Obrigado!!!
